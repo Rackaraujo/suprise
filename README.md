@@ -1,1 +1,1 @@
-https://rackaraujo.github.io/suprise
+https://rackaraujo.github.io/surprise
